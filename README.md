@@ -8,5 +8,6 @@ I code mostly for fun, if you need something, don't hesitate to hit me up on my 
 ***
 
 ## Social Media:
-Tweeter / X: ``Incomplete``
-Discord: @lone_archivist
+Tweeter / X: ``///``
+
+Discord: ``@lone_archivist``
