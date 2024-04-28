@@ -10,4 +10,4 @@ I code mostly for fun, if you need something, don't hesitate to hit me up on my 
 ## Social Media:
 Tweeter / X: ``///``
 
-Discord: ``@lone_archivist``
+Discord: ``thearchivist2.``
