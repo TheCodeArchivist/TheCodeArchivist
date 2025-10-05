@@ -3,6 +3,6 @@
 ## Introduction
 
 I'm **TheCodeArchivist**, a Python, C and JS developer coming from France.
-I code mostly for fun, if you need something, don't hesitate to hit me up on my social media accounts.
+This account is only used for funny side-projects.
 
 ***
